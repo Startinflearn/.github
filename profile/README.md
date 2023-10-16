@@ -1,4 +1,4 @@
-### 인프런 공부일지:eyes:
+### 공부일지:eyes:
 
 #### ⭐Study Language
 
